@@ -1,0 +1,1 @@
+![](https://sun9-50.userapi.com/impg/XlvqCdsREH7o8Uu6lHAZvbKNAQc2NWA07oTtpg/sMtHNrD5h7Q.jpg?size=735x541&quality=96&sign=5084dd1502d158f68b2e47713d881e8e&c_uniq_tag=U2iAmr8oscGjjtVc8FmyJyDZoZj1hGk-69W5NTWFJuk&type=album)
